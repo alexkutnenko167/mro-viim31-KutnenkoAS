@@ -1,1 +1,0 @@
-# mro-viim31-KutnenkoAS
